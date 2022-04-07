@@ -1,2 +1,0 @@
-# Celestial-Bodies
-Oscar Yave
